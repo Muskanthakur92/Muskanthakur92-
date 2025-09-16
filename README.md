@@ -31,7 +31,7 @@
 
 ## 📫 Connect with me
 - GitHub: [Muskanthakur92](https://github.com/Muskanthakur92)  
-- Linkdin: (muskan-thakur-652962310🌟)  
+- Linkdin: (muskanthakur🌟)  
 
 ---
 
